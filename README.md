@@ -1,0 +1,2 @@
+# premium-backpacking-001-backpacking-trail-planner
+Tired of juggling spreadsheets, sticky notes, and half-finished gear lists before every trip? The Backpacking &amp; Trail Planner - Notion Template turns your chaotic planning into one streamlined hub so you can spend less time organizing and more time on the trail.  This template consolidates every aspect of trip planning—from trail research and gear
